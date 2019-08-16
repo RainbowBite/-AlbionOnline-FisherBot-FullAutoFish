@@ -1,0 +1,1 @@
+# -AlbionOnline-FisherBot-FullAutoFish
